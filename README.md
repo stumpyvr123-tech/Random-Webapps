@@ -1,1 +1,1 @@
-u have to donwload all of the files
+CLICK TAGS THEN THE LATEST VERSION!
